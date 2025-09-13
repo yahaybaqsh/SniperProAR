@@ -153,4 +153,4 @@ If you enjoyed playing **SniperProAR**, please give it a ⭐ star. It helps othe
 
 > 🕵️‍♂️ *“In the silence before the shot — precision is power.”*
 
-© 2025 [Your Name] — Built with ❤️ for Arabic digital culture.
+© 2025 [yahyabaqsh] — Built with ❤️ for Arabic digital culture.
